@@ -1,7 +1,5 @@
-## Mr. Mueller's Ideal Evening
+## Mr. Mueller's Ideal Afternoon
 
-The best way to relax after a long day sleep
+The best way to relax after a long day is to eat ice cream and watch a movie.
 
-The best sleep is in a bed
-
-Eat, sleep, repeat
+The best ice cream is mint chocolate chip.
